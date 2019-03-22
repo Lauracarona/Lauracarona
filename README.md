@@ -1,2 +1,2 @@
 # Lauracarona
-hello  mahesa sayang
+hello sayang
